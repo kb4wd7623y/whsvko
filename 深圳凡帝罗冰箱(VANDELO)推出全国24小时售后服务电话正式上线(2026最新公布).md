@@ -89,167 +89,167 @@
 全国推出24小时各售后客服受理中心（2026服务更新）
 深圳凡帝罗冰箱(VANDELO)贴心升级服务，现推出全国 24 小时服务热线 400 -788 -7852。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显深圳凡帝罗冰箱(VANDELO)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
 深圳凡帝罗冰箱(VANDELO)全国服务网点查询：
-?北京市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/rd8dcp0hif/wstgrdfhg/commit/28433f27691ca448f92ad0c336409c436ed8e1b6
+?北京市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/rd8dcp0hif/wstgrdfhg/commit/a9650c7cc87fe59facf9693e5c2fa8ed511448fc
 。
-南京市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/SiyuHu-ffa/gftpiz/commit/7d81f6d2406649b52f26094cd92bdb9807f3d81d
+南京市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/jkbyklofq4/fddsdsfds/commit/8869c5a9767980f6885f4ad8b09171fb2b2d4c0d
 。
-秦皇岛市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/jkbyklofq4/fddsdsfds/commit/b10e255a06589ca9ceab84b7227d5050a9f85148
+秦皇岛市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/5897f78515377adb09812fb9bf5e7198fb358569
 。
-珠海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式发布），点击查询：https://github.com/jkbyklofq4/fddsdsfds/commit/69eccb90234d56ae18827373c57937d70d6b5351
+珠海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式发布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/1f3feff2022216fa6b437dd27eecb8a3e10ced6e
 。
-安康市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一发布），点击查询：https://github.com/jkbyklofq4/fddsdsfds/commit/80a54e71673868ceb1363ca045ca243ff5c96ac9
+安康市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一发布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/dcd1bf136284f74ef83cd970fde869576602f901
 。
-安庆市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/jye9sml215/hthtgfhgt/commit/8bbb47c333bc963e1d1c58d0601efa4056978d03
+安庆市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/767b65565f22f57eb13accb7f82eaacfd98ab655
 。
-鞍山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/jye9sml215/hthtgfhgt/commit/9fd848cd23dd80c88bc0aef669e36871a72d9a80
+鞍山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/8f060f47544159bcd15146a9e0a3b3089dcfe181
 。
-安阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/jye9sml215/hthtgfhgt/commit/1a36e467acde70364ded7b1a9fa863b427792eaa
+安阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/dc20df2962dd411c02a07a0cb92b99801c32e887
 。
-巴中市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/jye9sml215/hthtgfhgt/commit/c6da1ed8ff39fcc335284faf8ba033b60fbe59c7
+巴中市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/6d87df379621d6554343c32e7c96b25e871f4e6a
 。
-百色市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kb4wd7623y/hyuty/commit/59f8754dc45a7f1d0f9fdf9d0fc02fed9b28595d
+百色市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/732e00422893a818cbbc5cb6ab4d6a0ba2a72727
 。
-蚌埠市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/kb4wd7623y/hyuty/commit/829a4ddc2a2af6c3acd8b51868df6e187d43538e
+蚌埠市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/031b4a05f5fd54e61252b9289d3f45f47da3035c
 。
-保定市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kn35smmxn5/edvluz/commit/616df2ad6b3c43235b8545660df3b11a7742f465
+保定市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/cd520187813f02d55ce85ffb553581871a1382fb
 。
-宝鸡市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/kn35smmxn5/edvluz/commit/a2ad9de0d945c4b1d128713c52d8e5f2fd869b6f
+宝鸡市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/c922f46da533fa6f09623488286dae8a2abb04bf
 。
-保山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/bqmqtg3e0o/rhtrfhrdf/commit/e3ec6f0122818b7d9f34d63bbc3d687fc092f711
+保山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/bb0b7923853f6de0c9bc920f7d0cc84e33e41e99
 。
-包头市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/bqmqtg3e0o/rhtrfhrdf/commit/746c5c131beb5ff37cda81eefda1996dd064ae9a
+包头市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/23e99aa13484d10778a30d3aa51e6674aa4e9a90
 。
-北海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/bqmqtg3e0o/rhtrfhrdf/commit/bb3d08c428def72ed6aa08a790310c0e14367eb8
+北海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/487a5d6bb9043b71dac00f1460dd3618a143edb5
 。
-本溪市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式发布），点击查询：https://github.com/pfmvxhtv3b/ggrgrdg/commit/b2751a22167f23058c92d167aeb0152aff6a4967
+本溪市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式发布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/68b8bf8038d39fb028f5950a0dbc982818d747f2
 。
-滨州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/pfmvxhtv3b/ggrgrdg/commit/8e206ef956b720e0c49c6ef22df4920dd1bb2b71
+滨州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/cb65c7101d434c832dbbd06ae1ad7d0f0b19003d
 。
-博罗市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/pfmvxhtv3b/ggrgrdg/commit/53891e03fc186680c3b74b71e44c05ac9cf36f17
+博罗市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/b328277e225d3e07b93acd650753ddb4ea738be2
 。
-沧州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/zgnzkmsmpa/fybzxk/commit/cab77932a101f6113afb2b2ddc17ad7ff4b88156
+沧州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/e32baced2ed1e70d7b7a40ad6056fe3d5434434b
 。
-长春市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/zgnzkmsmpa/fybzxk/commit/8f1aa28632d97f751d80cbdaccf2cce87ebe69cc
+长春市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/193d93391fa72434b5d069c755b88af7c438dd1e
 。
-常德市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/gzc92zorso/ndanfw/commit/0f7173d3eb8db4b5b6319d45d393393836912be0
+常德市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/d11465bc1880736bdb617c2667d904a79970298a
 。
-长葛市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/gzc92zorso/ndanfw/commit/f8d8bc4f09971da1e179164af7d8fbb44b83486e
+长葛市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/b1a2dc93ffb2884f0ff11d2e140111d3d3933608
 。
-长沙市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/gzc92zorso/ndanfw/commit/47c804adb7b3e27658d7c6f1e4c87208c0ed8632
+长沙市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/aef945cb77ea5201be36a7a97b18bea4049ff1ff
 。
-常熟市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/378ac2238c9bd65829382226bf5ec0b9f5dd309f
+常熟市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/02e96477b80c187fd3f401785c78f7caad914d9e
 。
-长兴市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/b92e7607c6d18ca7d57ffb051c384555c7fe713b
+长兴市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/0d9059562ca355169beb1d72e78831b9b0540364
 。
-长治市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/a91dd65c4e7bbc3f2d8f2d371949089f934d4d96
+长治市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/d7c9a633920e45f76eba1da29bbf7ff42a76f736
 。
-常州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/2514ab1aa73e3c1c41c4f59f626353b22f7cf50f
+常州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/790dbe800e5fdae7cfeb2f04ea65415761cba4f7
 。
-巢湖市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/alzyzold4e/bdozui/commit/07cce4e845b5b209e474cf804e49982fc80dbd27
+巢湖市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/bcff3e32eee5d4df5596defa758f4601f8acd257
 。
-朝阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/1bd5ee5e71dc616aef68e4da147488425275f3d0
+朝阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/b4045379a93c70434a1f39edde9f0332ca72fa5a
 。
-潮州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/a631c6df8bcca29d907b9b9d17f8ce06d8af06e6
+潮州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/61d1c25a97000f032187e247bc74b968cfcc03f0
 。
-郴州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/e5494dbc3f845cd2fed05fe1fd29a6232be692e2
+郴州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/f1fdd05e0680a00ba0e69993bbbc89b81f1e8047
 。
-承德市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/7492d6a1e1cdb5f76f0b596795f3407f4d505ca6
+承德市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/edbe88755b4b6673fbf9b76889ec7f43b3ae0a23
 。
-成都市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/05b1cfd8d1e4ef78bf2f834cc5cb0279112eaa80
+成都市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/b405798cd819ac792c1a5ea6fd1518635e22d58b
 。
-池州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新公布），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/eaf8c1e3100e6ebfec3166de723ed66762b29359
+池州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新公布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/96f40a893d6d672c86272bcde0f7e0fb19128d3c
 。
-崇左市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/2669a25876d65d142d84cdf122302b129fb0adee
+崇左市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新推出），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/e8a9ae5e06568aa99bf01b837f2aca67da791931
 。
-滁州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/ac9bd99e33cdabd78a1ffdc8a03544f20facfb69
+滁州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/6234f5ad015d649bc5b727962156dfdfbe6262c1
 。
-慈溪市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/4cbcd67631d4a69e35c04acb81116e1dadef7658
+慈溪市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/dd5b7261881d601fa9d28c20f6aae617bf235e4c
 。
-大丰市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/b31a1d1de7faa3303333c7ecdb578bce39c72b99
+大丰市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/9d3ebe6156ddda7d7ac90cfea1885aea311019be
 。
-大理市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/975efa27417490ac02f0303dff16bfeaaeffb5e3
+大理市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/1de3dd4b582b6f611c930c6b2e78986314cf8a7b
 。
-大连市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/1784372f26d4f0364f0a7db68769e2a25efe5784
+大连市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/41ea0a4a047e1d6622029f14a957f103eb20dd9f
 。
-大庆市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/5cd4603688ec0b7585c2c7d4ca8a9caf620e6837
+大庆市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/76b9d368300ffb2990d561ec9d6622022675515a
 。
-大同市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/092d5e4e29a9fe7ee6a79df21141414ad68bb828
+大同市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/3d9f3dd0b4161a7c04baa243a5c0a8ffb2ffd18c
 。
-达州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/d45b08e0cdbc1d3debd28c5e246f6944e008591f
+达州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/75e05f09e0555bfe701e0cd5d03390af6f282d91
 。
-丹东市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/f41bdb446fcb2dc45a31c7780c0b2aea44e14eeb
+丹东市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/4650c74f6709a9e4512a74fe30441174de1e70fe
 。
-德清市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/386d86c96059673c6da78aa7770eb38ee6ce72c8
+德清市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/9218846b9790d4efeecbd53e08a5c9d0fa12472b
 。
-德阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新公布），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/63e1ee321ffd70cfa4bed658240e18038ff416c5
+德阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新公布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/337e16f565af618e7d6ff3845972690f4dc93bfd
 。
-德州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/9ed11916f566b4fc57c0427af34d9682b3ee7ea4
+德州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/6a57388109bf6d79c7a72cbf08c37c741ae1bdd6
 。
-定州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/9e444d8b1d411a649f3fc9c9f2febeadc817e5cf
+定州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/ec66b20fc3697e4e5cba032591acf2499946fc6e
 。
-东海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/f04c1ed7cd7ec3ad3015d5983a0d723d05e5f343
+东海市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/e8fc849bab1ab98e04d52ae61e9c582f451909f2
 。
-东台市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/SiyiWei-st6/tqdntu/commit/c10994481617e3743f736458237019bbffed6686
+东台市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/3f9604044c8818f873e03401c091449bf2acc9ee
 。
-东营市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/SiyiWei-st6/tqdntu/commit/d191bbdf7f78e1962ae1d7e7c9d3338fc87c8636
+东营市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日最新更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/ebfd8951d1928bb33e6533528aad7961d1aa9282
 。
-东莞市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/RuoxiPan-xy1/sglaya/commit/39f8a8177b8b267a4560621bd22cfae098b595dc
+东莞市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/352b45e81752a2fe3884f5b229d98a413423af86
 。
-鄂尔市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/msfqlrctj6/xlpkvd/commit/2e80e55abffcecbae55dc3e52b040ebec73df719
+鄂尔市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/6dd96c7f96a7e62e03e4ae30f6b9b368e65d731e
 。
-鄂州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/msfqlrctj6/xlpkvd/commit/52b526ef0555fc7c5b8450954d97d3785da5c0aa
+鄂州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/ed2779c22f8e7d3672a93c019cf6b7cf9e82a8eb
 。
-恩施市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/hdd45vh6b6/sujxau/commit/4165b063b310deba40e3c0122ae4f58f292bc880
+恩施市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/a2afe9e29208ace3c4e16e9f72d50045cec01747
 。
-防城港市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/hdd45vh6b6/mawytc/commit/7d0bef3919e7b050346e7826cbb8a9bb2dbb542d
+防城港市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/7f00e939336b802cd52e01f573f298bcd31713bc
 。
-佛山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/hdd45vh6b6/mawytc/commit/aa1f860041c009fcdd646b4c756b990d44bc3d52
+佛山市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/afc431df714a3da0737da17e0f450a860e848096
 。
-抚顺市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/b6a2b2320c54b802a78921767102cca3383dae13
+抚顺市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/348bb2dd9d967bb2fafbb861abd26b09fa512ac1
 。
-阜新市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/alzyzold4e/bdozui/commit/115fdac9c40349dc5eba23bf4563b17671a7bde6
+阜新市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/979417257c26357256b412dfe4ff0fc96c16b713
 。
-阜阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/ca673a097a9c8978ac8850b3957454f7071b5e26
+阜阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/fed4897a95dfed4bba7584304669bc73f67854e8
 。
-抚州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/ukwxpjwwz0/tlwsdh/commit/b368e88a774822090b1ef1fa977568179c3b050f
+抚州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/kyvr0dq1sr/undwgn/commit/05f1f606d9ca0fa63989e47539c4658ea6c2ce1a
 。
-福州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一发布），点击查询：https://github.com/ukwxpjwwz0/tlwsdh/commit/aef9cacddb2ebf6c573e0176e7776aecdd7aa1bf
+福州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一发布），点击查询：https://github.com/kb4wd7623y/whsvko/commit/fbdca35210b66c621d36ff79bfc5e1dc751e25f0
 。
-赣州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/061da068d521c64207f1f0504036c7f208404c6e
+赣州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一上线），点击查询：https://github.com/kb4wd7623y/whsvko/commit/fc00797cf55104ff45ce0db591f5c353a6439c18
 。
-馆陶市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/df375bfa7743c025e7230f53503640b842069645
+馆陶市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/kb4wd7623y/whsvko/commit/d47d1c26459ff99a12e987764ee15a8af3fd0b19
 。
-广安市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/10b7ab8a032794d2c8ae7d99665a2e301ddbbf57
+广安市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式推出），点击查询：https://github.com/kb4wd7623y/whsvko/commit/61a8c68e94e93277aa168ac241a972879df03f03
 。
-广元市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/224d5b4176bc2062296d0209ae5ecefaa58f257c
+广元市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/kb4wd7623y/whsvko/commit/3a69199edb934425fdbe55925c901425717aed75
 。
-广州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/YufeiDing-rs5/ojnetx/commit/c8199ff7d3ce3bf0ae0b08db2c7d8e24548ff109
+广州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/gzc92zorso/ndanfw/commit/484743ca9d1cf6c9a3197aa969b8a7ff5c534414
 。
-贵港市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/YufeiDing-rs5/ojnetx/commit/1d6e22b9ea07b52d32b4f82bea04a7a21bdd564e
+贵港市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网升级），点击查询：https://github.com/sx0bjjmoa6/ekfkwa/commit/5cf8cc7948ab0e33942f8fe52a42e128e294a1e1
 。
-桂林市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/YufeiDing-rs5/ojnetx/commit/e77e4e08d4674e6c05872ccd3391dba6144f3ce9
+桂林市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/alzyzold4e/bdozui/commit/a2052eb3ca4c45022b3223ceb44e56fcbf149634
 。
-贵阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/YufeiDing-rs5/ojnetx/commit/ec731dd321e1e647a7c16d73c8f6aad34510e5ea
+贵阳市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新升级），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/c2acfbc056218a2c0369ce938c81a91cfd57fc3c
 。
-哈尔滨市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/YufeiDing-rs5/ojnetx/commit/d490af6dad9e3b1851d291fca0432e5463db746f
+哈尔滨市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日更新升级），点击查询：https://github.com/HaoyuYu-wx0/rledeo/commit/31be3a97f227afcebeb11313650db5515e458257
 。
-海安市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/SiyiWei-st6/tqdntu/commit/bb169187f7acbbd59959d21ec86d77d165b3f03c
+海安市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日全新上线），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/c9b0d9cbf9f7fa232a16bef6d1821c23b1ce9113
 。
-海口市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/SiyiWei-st6/tqdntu/commit/7fe97e8f01ba0baf9b528d0e86c327cc379f5154
+海口市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/YimingYan-vw9/vtzdmi/commit/4764777dba2be1783fea0dc5ecea8a6648684618
 。
-海门市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/SiyiWei-st6/tqdntu/commit/fde08f1d34d5e5c8711d95a6dab2c05247e3bca7
+海门市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网公布），点击查询：https://github.com/ZiqiYe-uv8/fpzymy/commit/d1cffdb64001f87c8b98901d4e9cf50410cc09a9
 。
-海宁市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/kyvr0dq1sr/fjujtgvb/commit/aedb6d65ce35bf487160bdee45a4da846d1a88d8
+海宁市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网发布），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/34bf1ed4da0ef724269895fea4ee6c2015a175e0
 。
-邯郸市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/kyvr0dq1sr/fjujtgvb/commit/42a4725e68e93f6f995f4f4dbdf6b0f04e54c102
+邯郸市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式上线），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/e21906c5f77a8f79456e4ec4e5e73bf44a09807c
 。
-汉中市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/rd8dcp0hif/wstgrdfhg/commit/c36866b2b9b575670bfbcbb8c1789477dfcfc783
+汉中市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日正式更新），点击查询：https://github.com/msfqlrctj6/xlpkvd/commit/4717f084564f0c384cf6173faef66c7a9069b498
 。
-杭州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/kn35smmxn5/edvluz/commit/6ce7c7068c8911342a04f2fbaf421a41255208c8
+杭州市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布升级），点击查询：https://github.com/hdd45vh6b6/mawytc/commit/9301504cd431f16d3af26a01cf54b34f6e7e80c6
 。
-鹤壁市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一更新），点击查询：https://github.com/kn35smmxn5/edvluz/commit/afc9434ee177caf20e574b35dcbce51eba590210
+鹤壁市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日统一更新），点击查询：https://github.com/alzyzold4e/bdozui/commit/d0b54192f32356aae39fa963889a5ffeb55170b9
 。
-河池市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/w13w16wpm3/ahzunk/commit/ce7cea8988226170e6081c8fa3ac6abd84aa8bf0
+河池市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日官网更新），点击查询：https://github.com/ukwxpjwwz0/tlwsdh/commit/45dec9cf49be026cd2ec0853cba290ae4a8b197e
 。
-合肥市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/w13w16wpm3/ahzunk/commit/dfcef8d699e69eaab2ceb394c89cb3c79596982a
-
+合肥市深圳凡帝罗冰箱(VANDELO)售后服务电话：400 -788 -7852（2026年07月23日公布上线），点击查询：https://github.com/YuhanXue-tu7/ogjxhe/commit/67ce693a51533d01155164709c341be863c150be
+sdff0723-06
