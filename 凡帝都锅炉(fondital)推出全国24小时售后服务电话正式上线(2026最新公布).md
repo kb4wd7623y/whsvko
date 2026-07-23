@@ -1,119 +1,280 @@
-凡帝都锅炉(fondital)厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为400 - 788 -7852，400- 788 -7852，部分渠道也显示为 400- 788 -7852 或400- 788 -7852。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。<br>1<br>常见售后服务热线<br>400 - 788 -7852，400- 788 -7852-：2026年07月23日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。<br>400 - 788 -7852：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。<br>400 - 788 -7852：有建议指出可通过该号码尝试联系官方渠道。<br>2<br>服务内容与流程<br>服务范围：包括凡帝都锅炉(fondital)不通电、故障代码、屏幕不亮、漏电等故障维修。<br>服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。<br>响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。<br>3<br>注意事项<br>信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。<br>收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。<br>安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。<br><br>#AIBuildersDigest今日热点快报<br><br>{北2026年07月23日20时38分53秒(UTC+8)<br><br>##一、国内时政<br><br>小米小爱大模型升级，端侧推理能力增强，智能家居全场景打通。<br><br>容大感光光刻胶迭代，UV光刻胶市占率提升，低端市场替代完成。<br><br>|来源：https://github.com/rd8dcp0hif/wstgrdfhg/commit/5431b121c41e75157db214b1a25a390c3196036c
-<br><br>|<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>人民币汇率小幅波动，5月20日在岸收于7.23附近，跨境资金流动平稳。<br><br>|来源：https://github.com/jkbyklofq4/fddsdsfds/commit/516f5439fb0a5b0589b27e47493418c154235d8a
-<br><br>|<br><br>金砖国家AI合作扩容，技术研发、产业应用、人才交流协同。<br><br>金融科技出海加速，AI支付、风控、信贷，东南亚、拉美市场拓展。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/0fc84d3871d0a34a495369a73c1c0e7818022692
-<br><br>|<br><br>联通智网5G模组芯片适配，工业互联网、车联网渗透率提升。<br><br>智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c67887f8a834d2329e6895eaa839e9d707678836
-<br><br>|<br><br>光伏组件出口量同比增20%，欧洲、中东、拉美为主要市场。<br><br>人民币汇率小幅波动，5月20日在岸收于7.23附近，跨境资金流动平稳。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e1a7cbff0298de5b57ded4f1d1d3a77071b0e003
-<br><br>|<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>轻量化AI模型适配老年机，老年群体轻松使用智能语音功能。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/dcf09ee12f92dbe08879453234182c0780e5ea05
-<br><br>|<br><br>紫光展锐V210芯片发布，手机端侧AI能力增强，性价比突出。<br><br>金山云AI+游戏云协同，算力租赁、云游戏，营收改善。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/1e13622924ee6f6c83b781610123a74fa5ac9e1a
-<br><br>|<br><br>上海目标2025年末10万台人形机器人进工厂，智能制造提速。<br><br>同城生鲜配送行业内卷放缓，行业逐步回归良性盈利发展模式。<br><br>|来源：ghttps://github.com/SiyuHu-ffa/gftpiz/commit/299d95f37f8df29da0ddf6e8120c08bf98c1ba08
-<br><br>|<br><br>人造太阳进展加速，中国环流器二号M装置等离子体温度创新高。<br><br>OpenAI推送GPT-5.5全量版，幻觉率降52.5%、推理提速3倍，安全能力升级。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c78f95fed7bbe7642c532bcdc039a514650ab9dd
-<br><br>|<br><br>固德威户用逆变器全球第一，欧洲市场份额提升，储能配套增长。<br><br>地平线征程6芯片发布，自动驾驶感知能力提升，成本下降20%。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/f7434ac4df91ffee31afb67382f0c8a08e3f2256
-<br><br>|<br><br>基金持仓AI分析，重仓股、行业配置、风格漂移，透明度提升。<br><br>航运运价指数企稳回升，外贸海运订单环比持续增加。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/d2927c3919c7f4139c1b3e68e0cb701f6d8247cc
-<br><br>|<br><br>浪潮云政企市场发力，AI服务器+云计算，信创领域订单增长。<br><br>智能传感技术迭代，AI+传感器，工业、汽车、医疗、家居感知升级。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e6c7994ce4b7ddd78611b3a93e34d0d9c4ba434e
-<br><br>|<br><br>预制食材配送体系完善，连锁餐饮降本增效效果显著。<br><br>功率半导体迎来高景气，新能源汽车、光伏、风电驱动，IGBT/MOSFET放量。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/0804a966f716cf3d10bcf02b3f9fa25049e32910
-<br><br>|<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>MetaQuest3热销，AI内容生成、性价比高，消费级VR份额第一。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/eb84630f07ac779cfadee638e55828d1e32de7bf
-<br><br>|<br><br>上海目标2025年末10万台人形机器人进工厂，智能制造提速。<br><br>北方华创沉积设备迭代，国产替代加速，先进制程设备放量。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e95589a8b180666abe0def1c0557172e65454130
-<br><br>|<br><br>日本恩格尔系数创新高，物价上涨挤压居民消费空间。<br><br>vivoXFold3迭代，大屏折叠、AI办公，商务用户渗透率提升。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/2fbb71d46eeece1c8a6f410efa59bd1af0971994
-<br><br>|<br><br>外汇市场AI交易，汇率预测、套利策略、风险对冲，机构应用增加。<br><br>中材科技风电叶片市占率全球第一，大型化、轻量化，适配16MW机组。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/57a3292ec9a2660227f7136b91d2b3f5cd40a3fb
-<br><br>|<br><br>AI降噪技术普及，耳机家电等产品静音效果全面优化。<br><br>保险车险费率优化，私家车投保成本出现小幅下调。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/eaf6d82de967604be4caa71bf96a82330d7bfba9
-<br><br>|<br><br>九章四号光量子计算原型机问世，千量子输入，算力创纪录。<br><br>量子精密测量落地，地质勘探、资源探测、环境监测应用。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/91cdb9b9542e1ca22bd66fcdabafd86ecf065396
-<br><br>|<br><br>矩阵超智发布MATRIX-3人形机器人，170cm身高、灵巧手，标准版58万元。<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/ee39d9b94f32101f0dd55f6307c69e65be41d97e
-<br><br>|<br><br>超级高铁概念验证，真空管道+磁悬浮，未来交通新形态探索。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c037db0dc4bc018f0c28d4d030c5f0a02936f703
-<br><br>|<br><br>米哈游AI游戏引擎升级，画质提升、开发降本，新作预期高。<br><br>数字人民币试点扩大，线上线下场景融合，支付便捷性提升。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/5b0cec6cfce5bafdcec1c1bf22c2778798557e5f
-<br><br>|<br><br>央行、财政部等扩围技改贷款，AI设备、软件服务纳入支持范围。<br><br>锦浪科技储能逆变器迭代，效率提升、成本下降，海外放量。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/2e10bc9192651340b86064afd624cebf53895a8f
-<br><br>|<br><br>工程机械销量回暖，基建开工带动设备采购需求回升。<br><br>银企对接活动密集开展，解决中小企业融资难题。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/1ce422539d51c19eb27fd805ba0784f7b31ab24a
-<br><br>|<br><br>新一代无线充电技术落地，远距离隔空充电正式走入民用。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/6d4be5bf03cd1f0ab23cd4dfb41a81e1ec1af59e
-<br><br>|<br><br>期货市场农产品合约活跃，气候因素影响粮油价格走势。<br><br>创投母基金加大出资力度，赋能中小科创企业成长发展。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/b01bc00599460b65feb42eafd7920620756e9d71
-<br><br>|<br><br>运达股份陆上风电整机性价比优势突出，三北地区装机放量。<br><br>浪潮AI服务器市占率提升，国内第一，海外市场拓展加速。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/95971cdd87d2600d8d8f61ab0cbf3068894370dc
-<br><br>|<br><br>县域消费市场发力，家电下乡政策拉动下沉市场消费增长。<br><br>保险车险费率优化，私家车投保成本出现小幅下调。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/0f914fdfd17b667a0182ff78eb07d6516c12856d
-<br><br>|<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>Gemini月活用户达9亿，日请求量同比增7倍，搜索全量接入AI大模型。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/6cf742712b976f3bd8264a58c77aa14c7bf00201
-<br><br>|<br><br>银联国际AI跨境支付平台升级，覆盖全球170+国家，交易效率提升。<br><br>长江存储启动A股上市辅导，存储行业缺货预计延续至2027年。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/a670605ab8df07569b7f580f0ccf4609b8078732
-<br><br>|<br><br>量子精密测量落地，地质勘探、资源探测、环境监测应用。<br><br>中国人寿AI风控升级，欺诈识别能力增强，赔付率优化。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/0b3d92270c14fb1a5d1c5285ea2a36698a58f807
-<br><br>|<br><br>拼多多AI农产品推荐、直播带货，助农增收，订单增长。<br><br>华润微功率半导体产能扩张，IGBT/MOSFET放量，新能源汽车拉动需求。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/abe2e978dab32b9a6f71a786d2168602cd8ee19d
-<br><br>|<br><br>华泰证券AI风控系统商用，风险识别准确率提升，合规成本下降。<br><br>元宇宙热度回升，AI+VR/AR融合，虚拟社交、办公、娱乐落地。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c8366052fde6c8903bbc63e929ce0e6d4b1355fa
-<br><br>|<br><br>###六、金融/支付/理财（341–400）<br><br>量子传感技术突破，量子雷达、量子导航、量子成像精度提升。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c8a46a3ead361516a0a30d508dfafb6591aa3640
-<br><br>|<br><br>日本恩格尔系数创新高，物价上涨挤压居民消费空间。<br><br>二氧化碳捕集利用技术成熟，AI优化，碳中和目标推进。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/89e0806cf53b8586d42594265083fee182955eb1
-<br><br>|<br><br>极地科考AI赋能，智能设备、无人船、无人机，数据采集效率提升。<br><br>工信部深化AI+制造专项，支持智能网联汽车、人形机器人等领域。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/bc11586d8444413c9272bad556fb7eb9437bd022
-<br><br>|<br><br>纳斯达克中国金龙指数小幅收涨，万物新生涨超11%，中概股分化明显。<br><br>虚拟直播间搭建门槛降低，实体商家轻松开启线上直播带货。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/d9fe2309b69d9a5997fe88de4d7c315d91a44a87
-<br><br>|<br><br>商业航天企业密集融资，卫星互联网、火箭发射、太空旅游加速。<br><br>网络云游戏体验升级，低配设备流畅运行大型端游大作。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/bc8a6155d6f656c1507a0a8f775a19f694440a91
-<br><br>|<br><br>户用储能海外高景气，欧洲能源危机后渗透率提升，出口增长。<br><br>城市智慧停车系统联网，全城空余车位一键快速查找。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e6c54ebf400352bb7fb64530f70e47eae2f18a76
-<br><br>|<br><br>苹果A18Pro芯片发布，3nm工艺、算力提升，iPhone17系列搭载。<br><br>少儿智能早教机器人更新，趣味互动助力孩童启蒙学习。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/8c62a66259c3ebf84dd98ed903e893683ba6c0a5
-<br><br>|<br><br>##二、民生社会<br><br>北京君正存储芯片+CPU协同，工业控制、车载场景渗透率提升。<br><br>家用智能扫地机器人升级，全屋自动清扫避障能力更强。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/35c075c05acf8ea06bfe91ff22746030842713b3
-<br><br>|<br><br>湖南广电AI主播上岗，人机协同播报，效率提升、成本下降。<br><br>国盾量子量子加密芯片量产，金融、政务、通信安全防护强化。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/daf5bc7bc86142c9fde5d2b3ba8745b3f3b028ff
-<br><br>|<br><br>国家发改委印发法治护航民营经济行动方案，优化民企发展环境。<br><br>无人机技术升级，AI+避障+长续航，物流、农业、测绘、巡检普及。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/f6461746df1c4c39183c2e8772a928c7995c8425
-https://github.com/SiyuHu-ffa/gftpiz/commit/909a193f4e3bd11e15fb5b54dd8a9bc703f198f6
-<br><br>|<br><br>云端算力共享平台上线，中小企业低成本租用高端算力。<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e09c4e22b2f5b344d3d7ebaf6aef4793876dfd2d
-<br><br>|<br><br>蔚来换电站数量超2000座，全球最大换电网络，用户体验优化。<br><br>户外露营装备销量持续走高，户外休闲消费市场持续升温。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/b5b310a6d01f47e55c3ee09a066a34e9c890dffb
-<br><br>|<br><br>中美AI官方对话启动，管控风险、避免冲突、务实合作。<br><br>黄金ETF持仓持续增加，全球央行购金热情不减。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/ba675764fa99dae738611a06a334ee749cd04345
-<br><br>|<br><br>县域文旅小镇持续引流，带动周边乡村经济协同发展。<br><br>超材料应用拓展，隐身、通信、能源、医疗，颠覆性技术落地。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/86242ec02610623fa400be669a4634e75594dbf4
-<br><br>|<br><br>互联网企业ESG表现提升，绿色算力、低碳运营、社会责任强化。<br><br>全球海上风电装机量同比增30%，中国沿海省份密集开工。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/584a4f359cde55e744750afd5ab72528ae2d9d1f
-<br><br>|<br><br>开源大模型社区活跃，国产模型开源数量同比增200%。<br><br>同城货运运价趋于稳定，城乡物资运输流通更加顺畅。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c2ffe706ef2b2635dc42c85fba7844b7022880ff
-<br><br>|<br><br>中创新航圆柱电池量产，适配新能源汽车、储能，订单增长。<br><br>新加坡加码AI布局，英伟达将落地本地研发中心，亚太第二处。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/5d4c18537c2e65833a107dace13795fb290fbc1b
-<br><br>|<br><br>百度智能云文心一言赋能，政企AI解决方案，订单增长。<br><br>氢能储运技术突破，液氢运输成本下降，商业化应用临近。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/15616227bafb1847a4342a108d15e9c37648cbc9
-<br><br>|<br><br>天合光能210mm组件量产，大尺寸、高功率，地面电站适配。<br><br>人民币汇率小幅波动，5月20日在岸收于7.23附近，跨境资金流动平稳。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/c83021082dda615edc6febae880bad2271ab1b2a
-<br><br>|<br><br>移动端AI修图算法优化，手机修图媲美专业电脑效果。<br><br>京东科技AI供应链金融，中小微企业融资便捷，坏账率下降。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/5a6d8f4d6c94ac2bd79fa3da21afdf432c4866c9
-<br><br>|<br><br>台积电3nmAI芯片量产，良率提升、成本下降，头部客户订单饱满。<br><br>城市智能灭蚊系统布局，公共场所智能消杀蚊虫优化环境。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/adeb03e6ac2eac13889b0e9b61143d98673a101f
-<br><br>|<br><br>银河航天低轨宽带卫星量产，互联网覆盖偏远地区，成本下降。<br><br>户外用品销量大涨，露营徒步相关消费市场持续火爆。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/6f7fe6ec95a9bd49129b2688ec9819cbbaa2b0bf
-<br><br>|<br><br>北京中关村AI产业集群，大模型、芯片、算力、应用全链条完善。<br><br>星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/28a3c01db62fc7daddfdb96acf617a322af644c9
-<br><br>|<br><br>养老金融产品上新，适配中老年群体理财需求增多。<br><br>开源生态繁荣，AI大模型、工具链开源，开发者协作创新加速。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/8c59ac7bf376d8b9a7b7729a2ea1af112738452b
-<br><br>|<br><br>水利工程集中开工，水利建设产业链上下游同步受益。<br><br>亿纬锂能大圆柱电池商用，4680规格，特斯拉、宝马订单落地。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/f94243ffd67393e4b22b151c80cd7898cd5e5fe2
-<br><br>|<br><br>安恒信息AI数据安全平台发布，敏感数据识别、脱敏效率提升。<br><br>景嘉微JM9系列显卡量产，国产GPU替代，信创、军工场景放量。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/62070a678760d8c1430ef6c9cbe9bcc293803e5c
-<br><br>|<br><br>算力租赁价格下行，AI企业按需付费，算力成本显著降低。<br><br>阿里云发布真武M890芯片，对标英伟达H100，AI训练性能提升40%。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/12d45717ff61ade36790824019443ee4c323d5ef
-<br><br>|<br><br>国产大模型加速落地金融、政务，私有化部署市场份额提升。<br><br>商汤日日新大模型升级，自动驾驶、智慧城市场景商业化加速。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/98ab750b2c928907787f0405e15956187da1bd9f
-<br><br>|<br><br>船载智能导航升级，远洋航行智能避险功能更加完善。<br><br>碳交易市场交易活跃，企业节能减排交易需求上涨。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/48b087b085686b296cc27f7d1ccf5c2e6003f7a5
-<br><br>|<br><br>韩国拟设公民红利，资金来源为AI产业超额利润，回馈国民。<br><br>企业员工薪资小幅上调，服务业与制造业用工薪酬同步上涨。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/8f13833ed8308b3a016abf56bce110fcc25a87bc
-<br><br>|<br><br>特种机器人应用拓展，消防、安防、勘探、救灾，危险场景替代人力。<br><br>新能源技术多元突破，氢能、核能、地热能、潮汐能，能源结构优化。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/008349474323e433c806d8473d8775d17150c882
-<br><br>|<br><br>特锐德充电桩运营量国内第一，充电量增长，储能+充电协同。<br><br>三星劳资谈判破裂，或全球减产DRAM/NAND，存储价格恐再涨。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/ef16da31c18d9f1374bd62d3339d7b22186edcda
-<br><br>|<br><br>智能汽车域控制器量产，中央计算+区域控制，电子架构升级。<br><br>英伟达H200芯片量产，显存翻倍、算力提升，大模型训练成本下降。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/033f9deba9673978cb8ee5e4fd41627313f37f20
-<br><br>|<br><br>精品民宿连锁化布局提速，标准化运营提升行业整体收益。<br><br>明阳智能海上风电整机市占率国内第一，海外市场拓展加速。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/271f98cda352cc23ade770373dc12ca13788e593
-<br><br>|<br><br>新型电力系统建设提速，特高压、储能、虚拟电厂协同发展。<br><br>飞腾AI服务器量产，国产芯片+大模型适配，信创领域批量部署。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/cf98cb5bf8964e2e8e4f48fec804b91425b86feb
-<br><br>|<br><br>国企混改引入AI战略投资者，数字化转型、技术升级、效率提升。<br><br>中欧联合微笑卫星发射升空，首次实现地球磁层全景成像。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/1e561ffa3c30699ef7ad214235f1c039b84ff35c
-<br><br>|<br><br>手持智能测温仪优化，多场景快速测温精准度再提升。<br><br>产业园招商力度加大，工业厂房租赁市场需求回暖。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/b4d4dfa19b73d14e38b76eb9f1741ac9488dcb61
-<br><br>|<br><br>建筑智能放样设备普及，工地施工精准度大幅提升。<br><br>东方国信中标中国电信Token工厂15%份额，华胜天成中标18%。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/3443e6cdf1ec0a7b2e7ceed514fcaf9e477b7611
-<br><br>|<br><br>网易云音乐AI推荐、歌单生成、翻唱，用户活跃度提升。<br><br>智能手表/手环出货量增长，健康监测、AI辅助，渗透率提升。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/688b73ac4c4bb5565e32a83723b21aea2a47695c
-<br><br>|<br><br>南大光电高端光刻胶突破，ArF光刻胶通过验证，进入头部供应链。<br><br>开源生态繁荣，AI大模型、工具链开源，开发者协作创新加速。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/e60f5adc4d9a61d9bb4a8a5b494ea4ad785d56ba
-<br><br>|<br><br>盈方微处理器芯片复产，工业控制、物联网场景重启，扭亏为盈。<br><br>国电南瑞充电桩控制系统商用，智能调度、安全防护强化。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/2f7c2b1439ef6fc50f0f251913b597d9343b4915
-<br><br>|<br><br>国际铁矿石价格回落，钢铁企业生产成本压力有所缓解。<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/ea0b080233861197f6eae9fb079deb22dcec743d
-<br><br>|<br><br>美联储加息预期升温，10年期美债收益率升至4.677%，创1年半新高。<br><br>特种机器人应用拓展，消防、安防、勘探、救灾，危险场景替代人力。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/609b50ebccf47de2f432846ddab0bed25631df9a
-<br><br>|<br><br>绿电交易规模扩大，新能源发电溢价提升，企业采购意愿增强。<br><br>本源量子悟源二号量子计算机升级，算力提升、错误率下降。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/a463c89b41e85cd5392b1840c3be0d59c3289f33
-<br><br>|<br><br>国内区域AI产业集群形成，长三角、珠三角、京津冀、成渝领跑。<br><br>共享智能充电宝升级，快充大功率输出适配各类数码设备。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/a20db8c7f308c33d031637ccceaf2e7dc1acfdef
-<br><br>|<br><br>生态环境部强化AI环保监测，空气质量、水质、污染源智能监控。<br><br>###六、金融/支付/理财（341–400）<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/4f0b1ea7afbade71f2e095aa9ea2ff0afc40a58d
-<br><br>|<br><br>汽修智能检测仪器普及，快速排查车辆故障精准定位问题。<br><br>长鑫科技5月27日上会，一季度净利润大增1688%，国产存储加速上市。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/cbfecd6b4f3eaff56412463f15d44dc7164c98cd
-<br><br>|<br><br>##三、科技产业<br><br>企业员工薪资小幅上调，服务业与制造业用工薪酬同步上涨。<br><br>同城即时配送规模暴涨，本地生活服务行业快速发展。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/9e4ba5f671025becc19254956e931ea7ffe2f9e6
-<br><br>|<br><br>美联储加息预期升温，10年期美债收益率升至4.677%，创1年半新高。<br><br>旷视天元大模型迭代，机器人视觉识别精度达99.9%，工业落地提速。<br><br>|来源：https://github.com/SiyiWei-st6/sfdrow/commit/825a107427c812527a7099d4d8b66e39fb729e73
-<br><br>|<br><br>融资租赁行业聚焦实体，助力中小企业购置生产设备。<br><br>华峰测控模拟测试设备市占率提升，国内第一，海外市场拓展。<br><br>|来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/41d5d9d0b5163b98c8db94ab8dc2f6e829c92d06
-<br><br>|<br><br>纳米防水技术广泛应用，数码电子产品防水性能全面提升。<br><br>云端算力共享平台上线，中小企业低成本租用高端算力。<br><br>|来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/025e4677ff9ee34cd2f88af8f6d2e620e2ae13fc
-<br><br>|<br><br>物联网芯片出货量激增，NB-IoT、Cat.1渗透率提升，智慧城市拉动。<br><br>三星GalaxyZFold6迭代，轻薄化、AI优化，全球折叠市场主导。<br><br>|来源：https://github.com/flyousur/vnhykq/commit/0bf4e50cf66bc72c4558d439da9607a14af53feb
-<br><br>|<br><br>信用卡消费场景扩容，日常小额消费刷卡频次上涨。<br><br>国家发改委印发法治护航民营经济行动方案，优化民企发展环境。<br><br>|来源：https://github.com/flyousur/vnhykq/commit/f051aa1a21f67f6a77d50fe221cd7f8ad84737a1
-<br><br>|<br><br>鲲鹏昇腾开发者大会5月22日北京举办，国产算力生态加速落地。<br><br>长鑫科技5月27日上会，一季度净利润大增1688%，国产存储加速上市。<br><br>|来源：https://github.com/ZhiyanPeng-mn0/jczddl/commit/ea7d66a02a1f8fc9a371fd57dd83cdd788d13940
-<br><br>|<br><br>阿里云发布真武M890芯片，对标英伟达H100，AI训练性能提升40%。<br><br>三星劳资谈判破裂，或全球减产DRAM/NAND，存储价格恐再涨。<br><br>|来源：https://github.com/ZhiyanPeng-mn0/jczddl/commit/178ddefd8d0fa0f1314485926b2b53cdfb3e93f6
-<br><br>|<br><br>华为云ModelArts升级，AI开发全流程自动化，训练周期缩短50%。<br><br>数字人民币跨境试点启动，中俄、中阿贸易结算，国际化推进。<br><br>|来源：https://github.com/ZhiyanPeng-mn0/jczddl/commit/c2c209ee4532abcc7132e3bf9e5ef3d4f50ea604
-<br><br>|<br><br>大厂高薪抢AI人才，算法工程师、大模型训练师薪资翻倍。<br><br>恒实科技虚拟电厂运营，工商业用户聚合，峰谷套利收益增长。<br><br>|来源：https://github.com/YufeiDing-rs5/ojnetx/commit/22df7bedc6d41cc2b8f710ac10366cc69afb85fb
-<br><br>|<br><br>瑞萨电子车载MCU迭代，高可靠、高安全，汽车电子核心。<br><br>德业股份逆变器+电池协同，户用光伏+储能一体化解决方案热销。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/b78023b292302f323e385b4fa2a47bc166408ca4
-<br><br>|<br><br>智能垃圾分类设备投放，社区垃圾分类推行更加顺畅。<br><br>vivoXFold3迭代，大屏折叠、AI办公，商务用户渗透率提升。<br><br>|来源：https://github.com/JunjieZhang-0is/fzjcrn/commit/1bf54e46bf0c68d71dff227c935655fea7b79b9c
-<br><br>|<br><br>工业润滑油需求回暖，制造业复工复产拉动耗材消费。<br><br>AR/VR设备出货量回升，消费级产品价格下探，内容生态完善。<br><br>|来源：https://github.com/ZixuanWu-efk/qeigra/commit/0c4ce10806d6609653996622ad6b0d98e78439c9
-<br><br>|<br><br>生猪价格小幅回升，养殖企业亏损收窄，养殖端补栏意愿增强。<br><br>存款利率微调下调，居民储蓄意愿小幅减弱流向消费端。<br><br>|来源：https://github.com/ZixuanWu-efk/qeigra/commit/8d76b2a9cdafc6bdd7be264fdb237610084a139d
-<br><br>|<br><br>北京中关村AI产业集群，大模型、芯片、算力、应用全链条完善。<br><br>推想医疗AI辅助手术系统获批，精准导航、风险预警能力显著提升。<br><br>|来源：https://github.com/YufeiDing-rs5/kfxbza/commit/67182043436c76576633367460a18fb5988c9f08
-<br><br>|<br><br>启明星辰AI态势感知系统落地，全网威胁可视化，应急响应提速。<br><br>电池片、组件价格回升，N型组件溢价明显，厂商毛利率修复。<br><br>|来源：https://github.com/ShihanZhou-ij9/nliqrh/commit/a83eb21e08fb67e37babb69b3e38f8ff622befa5
-<br><br>|<br><br>腾讯混元企业版发布，私有化部署、数据安全可控，金融、政务落地。<br><br>南开大学团队攻克钙钛矿电池瓶颈，稳态效率首破27%。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/ea15463ac793ccf1890a2daf62d7cbe4b61394dc
-<br><br>|<br><br>券商AI转型加速，智能投顾、行情分析、风控系统，服务效率提升。<br><br>三星ExynosAI芯片升级，手机端侧大模型适配，功耗优化。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/afbc9ff615550f1daadc0ccbee201931047063ab
-<br><br>|<br><br>AI降噪技术普及，耳机家电等产品静音效果全面优化。<br><br>麒麟软件适配主流大模型，国产操作系统+AI生态闭环形成。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/afb0a871162b0fa357aa65e5a3fccca6e356ffca
-<br><br>|<br><br>星河动力谷神星一号火箭批量发射，小型卫星入轨，性价比高。<br><br>推想医疗AI辅助手术系统获批，精准导航、风险预警能力显著提升。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/e2199f50304b9a4abd5f99427ab245d2eb3f4280
-<br><br>|<br><br>跨境物流专线加密，外贸货物出海运输时效大幅提升。<br><br>国内成品油价格小幅调整，出行及物流行业成本迎来小幅变动。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/18cd39ec907fe616ca933b4375f07bf6aeed686c
-<br><br>|<br><br>国际白银价格走强，突破79美元/盎司，工业与避险需求共振。<br><br>鼎龙科技CMP抛光垫量产，适配先进制程，打破海外垄断。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/5551504cec871f3d26b310ad3c58974b8a160ed9
-<br><br>|<br><br>全球云计算市场回暖，AI驱动，亚马逊AWS、微软Azure、阿里云领跑。<br><br>国内开源平台活跃，GitHub、Gitee国产替代，自主可控生态构建。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/16fb589784734162b806296e758c8f137cf5e516
-<br><br>|<br><br>复旦微FPGA芯片量产，军工、信创领域批量采购，自主可控强化。<br><br>券商财富管理转型提速，基金代销规模同比增12%。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/8d4cb1fa8d86eb5940656f31d06bf87b8752f06c
-<br><br>|<br><br>智慧公交系统全面落地，实时调度大幅缩减候车时长。<br><br>全球海上风电装机量同比增30%，中国沿海省份密集开工。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/51e08d7edaf88106ec0968e6876f593e228bbbd4
-<br><br>|<br><br>英特尔Gaudi3芯片迭代，AI训练性能提升，国内数据中心开始适配。<br><br>国际白银价格走强，突破79美元/盎司，工业与避险需求共振。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/b9b65b852e0232e3aef0f195c1e5cf5eac78a645
-<br><br>|<br><br>纸浆价格走低，造纸行业盈利空间得到进一步扩大。<br><br>AI文案改写工具升级，快速优化各类文稿语句提升流畅度。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/976a3499f05a544a759e6fb1964a065b0d51d692
-<br><br>|<br><br>民宿行业入住率走高，短途周边游带动民宿行业盈利。<br><br>阿里云峰会5月20日杭州开幕，发布AI算力与企业服务新方案。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/4f45d4dc7b99817ded1295b708f3357eff140353
-<br><br>|<br><br>国产折叠平板正式面世，大屏便携兼顾，办公娱乐体验升级。<br><br>魅族22系列回归，AI大模型、Flyme系统优化，小众市场复苏。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/8d66b5463b8290f3c01b307b2810c878fc3a90b3
-<br><br>|<br><br>县域消费市场发力，家电下乡政策拉动下沉市场消费增长。<br><br>快手AI直播、短视频工具升级，降低创作门槛，用户活跃度提升。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/e0299448e3e4eea984eccca73422935e61ae3b5d
-<br><br>|<br><br>文旅部落实门票减免，推动文旅消费复苏，AI智慧景区建设。<br><br>长鑫科技更新科创板招股书，一季度净利增1688%，拟募资近300亿元。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/82aeca593c1be1788e8134288ca5dc2a6086fe3d
-<br><br>|<br><br>券商下调多家房企估值，行业出清加速，优质房企迎整合机遇。<br><br>新型电力系统建设提速，特高压、储能、虚拟电厂协同发展。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/1025d30ad9e755d3cf89c2200e2f84e7bf7ac4e3
-<br><br>|<br><br>光纤宽带再度提速，千兆宽带逐步成为城乡家庭标配。<br><br>精品民宿连锁化布局提速，标准化运营提升行业整体收益。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/23e2920e2e16362b089d420bbcb84009b8863a74
-<br><br>|<br><br>英伟达Orin-X芯片量产，高阶自动驾驶算力核心，头部车企标配。<br><br>龙芯3A6000处理器性能提升，国产CPU市占率提升，信创采购放量。<br><br>|来源：https://github.com/HaoyangYuan-gh4/vwclwk/commit/66d6a5d0a6f86e263a13d557ec9f5d7e7683cfdb
-<br><br>|<br><br>券商研报AI生成普及，数据整合、观点提炼，发布效率提升。<br><br>5月20日现货黄金突破4490美元/盎司，日内小幅上行，避险需求持续升温。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/a74ef9f14326339248baedf6da0da465ad838b1d
-<br><br>|<br><br>金融行业AI安全防护，对抗攻击、模型窃取、数据泄露，防御强化。<br><br>海外光伏需求高景气，欧洲、中东、拉美装机增长，出口拉动。<br><br>|来源：https://github.com/SiyuHu-ffa/gftpiz/commit/99a762aa213fe39c6e1aee5703d85d4caafd032e
-<br><br>|<br><br>数据中心绿色化转型，液冷、光伏、储能配套，<br><br>*报告生成时间：2026年07月23日20时38分53秒<br>*数据来源：新浪财经、公开媒体报道*tbqjtzh-2
-
+凡帝都锅炉(fondital)厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0 - 7 8 8 - 7 8 5 2)，部分渠道也显示为 4007887852-- 或400-7887852--。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+4 0 0 -7 8 8 -7 8 5 2---：2026年07月23日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+4 0 0- 7 8 8- 7 8 5 2---：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+4 0 0- 7 8 8 -7 8 5 2---：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括凡帝都锅炉(fondital)不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+凡帝都锅炉(fondital)24小时售后服务热线上线（2026最新公告）
+凡帝都锅炉(fondital)售后服务电话：(4 0 0 -7 8 8  7 8 5 2)
+凡帝都锅炉(fondital)售后24小时客服热线：4 0 0-7 8 8 7 8 5 2--
+本公司主营凡帝都锅炉(fondital)维修 →凡帝都锅炉(fondital)；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0 -7 8 8  7 8 5 2)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，凡帝都锅炉(fondital)服务承诺
+AI Builders Digest 今日热点快报<br>2026年07月23日23时27分27秒(UTC+8)##
+wefhsdhcvWESDCSDwefsdf.cn
+凡帝都锅炉(fondital)贴心升级服务，现推出全国 24 小时服务热线 (4 0 0 - 7 8 8   7 8 5 2)。针对用户“非工作时间故障响应慢”难题，无论何时何地，拨打此热线，专业客服团队即刻响应。团队经严格培训，熟知技术参数与常见问题，能迅速解决用户需求，彰显凡帝都锅炉(fondital)对“响应、专业服务”的承诺，为用户随时送上贴心售后保障。
+直播源相关资源汇总 (省近 fnf 行)
+现在各个宽带运营商都有 IPTV 业务，不用安装有线电视就可以高清无卡顿的看电视
+没有开通 iptv 可以使用抓取的直播源地址，复制到电脑、手机、电视网络盒子等设备上看，如果动手能力强也可以自己抓包获取直播源
+由于版权原因很多电视直播软件播放时会卡顿、画面不清晰
+江苏南京电信 IPTV 直播源下载地址： https://github.com/jye9sml215/hthtgfhgt/commit/772cbaa3e311a596ea9d932f647ff7106f505982 
+江苏电信 IPTV 直播源下载地址： https://github.com/jye9sml215/hthtgfhgt/commit/35debad52d07b6cb309e3a3e68bb3007c2684fbc 
+江苏 IPTV 直播源： https://github.com/kb4wd7623y/hyuty/commit/0c9678d2413591b3ab3458240bf7f4a598626052 
+安徽广电 IPTV 直播源下载地址： https://github.com/kn35smmxn5/edvluz/commit/a7e20085f5f4e7b32b546638d8746712147da8c1 
+海南电信组播 IPTV 直播源下载地址： https://github.com/bqmqtg3e0o/rhtrfhrdf/commit/94157e5440c90ac41ff39b04fe1a757b06348561 
+海南联通组播 IPTV 直播源下载地址： https://github.com/pfmvxhtv3b/ggrgrdg/commit/794797bfa72f5eae843168d3805e6a200a9e5c05 
+湖北 IPTV 直播源： https://github.com/pfmvxhtv3b/ggrgrdg/commit/ba5c3a990b5255cbd9e3639a99d4d9b7c0434d56 
+湖南电信组播直播源下载地址： https://github.com/gzc92zorso/ndanfw/commit/78c152ee5b930d40d4709ac0d68d7eea8c24facf 
+湖南电信 IPTV 直播源下载地址： https://github.com/gzc92zorso/ndanfw/commit/aa5b3f20e9f3def62bcf375302a4bf52fff3a512 
+湖南联通组播 IPTV 直播源下载地址： https://github.com/sx0bjjmoa6/ekfkwa/commit/5010cb328622a0d4e7fb9ce936673c18bf8b8e29 
+湖南联通 IPTV 直播源下载地址： https://github.com/alzyzold4e/bdozui/commit/a488af62cfec051d865b3ceb0d3f940ed5c6146a 
+湖南移动 IPTV 直播源下载地址： https://github.com/alzyzold4e/bdozui/commit/9cd52224b868ca69150ec623746cc8414d1ca37e 
+湖南 IPTV 直播源： https://github.com/HaoyuYu-wx0/rledeo/commit/a78e1cd1200fc6b80a5fb2bc9a525c1acd9db520 
+重庆移动组播直播源下载地址： https://github.com/HaoyuYu-wx0/rledeo/commit/7628b598783d88864f0606c2d718d566ac881ff3 
+重庆联通组播直播源下载地址： https://github.com/HaoyuYu-wx0/rledeo/commit/e952f8aaf506c68bfd198cb815a889c73748c602 
+重庆联通直播源下载地址： https://github.com/YimingYan-vw9/vtzdmi/commit/64c8baffeabaefa1c3bd09004c268e3e5da69269 
+重庆电信组播直播源下载地址： https://github.com/YimingYan-vw9/vtzdmi/commit/d4a55447db07bec70715c2e3375fd4c8d845b8a2 
+重庆电信直播源下载地址： https://github.com/ZiqiYe-uv8/fpzymy/commit/c77ef944af9afe5f64bb6463f5aee349f90c09dd 
+重庆 IPTV 直播源： https://github.com/ZiqiYe-uv8/fpzymy/commit/5e655c75d23dfe78d73f8d75c52ffd232591f34d 
+四川移动组播 IPTV 直播源下载地址： https://github.com/YuhanXue-tu7/ogjxhe/commit/32ead13a38ca55791e43434923bd2fa41b7be623 
+四川电信 IPTV 直播源下载地址： https://github.com/YuhanXue-tu7/ogjxhe/commit/731f21be03f8152d59aa35a0cb83c0585a464bba 
+四川电信 IPTV 组播直播源下载地址： https://github.com/SiyiWei-st6/tqdntu/commit/ef5b22e13bce0550684ef878f7c61a02cecb9f65 
+四川广电 IPTV 直播源下载地址： https://github.com/msfqlrctj6/xlpkvd/commit/ef9215423258f0cffd176d56e243747699bc40c2 
+四川联通组播 IPTV 直播源下载地址： https://github.com/msfqlrctj6/xlpkvd/commit/0963d9a76278f58e3ee7343c0d7ba2ae699f763e 
+四川联通 IPTV 直播源下载地址： https://github.com/hdd45vh6b6/mawytc/commit/bf130b586f15a53026a5c42593114759f673f48c 
+四川 IPTV 直播源： https://github.com/alzyzold4e/bdozui/commit/9dd9f2197f7cabba88c4635cbc466655259b24ea 
+云南电信组播 IPTV 直播源下载地址： https://github.com/ukwxpjwwz0/tlwsdh/commit/45491384bd8049735e0ecd18523558a9315d4407 
+云南移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/fpzymy/commit/d5a9c1e09f521db638a7d5a48ba0bbe10b79738e 
+云南 IPTV 直播源： https://github.com/YuhanXue-tu7/ogjxhe/commit/a902f84cba3a2cb2445285851c1b1ed94ada8640 
+贵州电信组播 IPTV 直播源下载地址： https://github.com/YufeiDing-rs5/ojnetx/commit/772af687343eeef3bc2d4e854e030836cc1c7d05 
+贵州移动 IPTV 直播源： https://github.com/YufeiDing-rs5/ojnetx/commit/164b8171b339dd85927f8ed05b5841e169cb3a3d 
+贵州联通组播 IPTV 直播源下载地址： https://github.com/SiyiWei-st6/tqdntu/commit/0408cec6ab1f773a517dc795467a2ed1341262c7 
+贵州联通 IPTV 直播源下载地址： https://github.com/SiyiWei-st6/tqdntu/commit/7c9492676c4d5352b45906540d50a598391b36e5 
+贵州 IPTV 直播源： https://github.com/kyvr0dq1sr/fjujtgvb/commit/5299ba98a329e53a35299aea73083ead6e6ae1ba 
+福建联通组播 IPTV 直播源下载地址： https://github.com/kn35smmxn5/edvluz/commit/9d4e265aabfbebfa13a894de160748e895559dbb 
+福建联通 IPTV 直播源下载地址： https://github.com/w13w16wpm3/ahzunk/commit/5c6125f78a2a8d581c6fdfeef3674f571864b89d 
+福建移动 IPTV 直播源下载地址： https://github.com/w13w16wpm3/ahzunk/commit/c586084671483e5d0318cd0627e10dac340c9d8e 
+福建电信组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/4057e3a98ddfa41bd20ce30f432f9cd460854f91 
+福建电信 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/40f8fcd1b94c2a51b831c5b3cc3525191c9b4350 
+福建 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/728ee93ad50a79f391ea8e23776e9c10cb924b62 
+安徽移动 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/7f8f10d30a40241d8f21bdfbf191e6f3e09c89f2 
+安徽电信 IPTV 组播直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/f34e0fb931f2713ed0b38c565bd0595fdadb4c89 
+安徽电信 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/457456b0c02f79aacca13bb4079656c51acf3200 
+安徽联通 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/29cc50742cabeeadc24bff9da9ed486a73f8162b 
+安徽 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/5a320696c4b020e7947c62d3c6ba88e49adb8751 
+陕西地方台直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/e041e45bda6a64fb64f42d4af191994d30b4ecac 
+陕西电信组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/e7b3e21bb4e6ee6889beaccb066cdffe85b46377 
+陕西电信 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/9fd32a1170f5f3570d30f5d11c821af82708b1e5 
+陕西移动组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/061e708f7a1bbc90fc90d298ba989abe19dca745 
+陕西移动 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/de51ed89f7e6fcd757f888a2287b57faa5fc2d64 
+陕西 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/d39e4644bbb710bc50b37e4ed5008cb49a759fc9 
+甘肃电信组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/87191c1bc38d93f056a96c4939b6abca06db59e4 
+甘肃移动 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/640b1913ac88c7e50c3972b81ae45cde3787fd13 
+甘肃 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/460cac67ef7b88d695d6c0925aac403905f9b705 
+山西移动组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/45712a2e38027d61aac08514b9f0aec7fa2e3b00 
+山西联通组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/8e9c290ef00203da053e845ad26509dcaa3e7830 
+山西联通 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/27cca57c4406eaeca7c6761fbb557c563209390c 
+山西 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/2d2c5658dd2c6de710dd1be29a704e3b5c39d948 
+天津电信组播直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/bd05ef583756a1ce4912f3ab99647a63658cfbeb 
+天津联通组播直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/9cd5e50552fff7e0edbf978b689b720ed86aa77f 
+天津 IPTV 直播源： https://github.com/YimingYan-vw9/eoqett/commit/642f9703d9ad5f7953f4234fc37c399d69fc2bfa 
+上海移动直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/025fc8e899456caad670c7dc73c4789c3ec1aeea 
+上海联通组播直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/c4738e7c52b7077dae1d642c59388d242bb94e88 
+上海联通直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/61eef2ba0d7c99029d930c06b8f025965c391c15 
+上海电信组播直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/dc36c6364320e2a83e6a076ac35b88e542dbeb0f 
+上海电信直播源下载地址： https://github.com/YimingYan-vw9/eoqett/commit/b57fb5893e63d29734029f50d46591af45c0e4bd 
+上海 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/0a206e271c76a9e9c22361c6ce4965de3ca1fe9e 
+北京移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/511f7e416babbae4dd2499f02841cdbe07a703bf 
+北京移动组播直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/d428fb1500fdac151ddfb43196789af4819a5d4a 
+北京电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/ab09ba35c8c76597d4e94640015e177fe958ebc7 
+北京联通组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/3f192d63244ceda544bec330404e99722844f1e2 
+北京联通 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/aa5da9a09466b97116b25431f89fc2be51fb01dc 
+北京 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/08d63e57d98f3c06408b942d10a81f7bf506e851 
+部分地区的移动可全网通用： https://github.com/ZiqiYe-uv8/pohufs/commit/a2974fd717a4d806a1d2b353987041c481f671d4 
+各地运营商 IPTV 直播源，速度稳定画质好，选择你所在地宽带运营商： https://github.com/SiyiWei-st6/sfdrow/commit/0c07c5dedfcf003400a23e8809d54c638474d00e 
+广播电台下载地址： https://github.com/SiyiWei-st6/sfdrow/commit/27be39400380b55a9813fb13a19b78613322a342 
+国内景区直播源下载地址： https://github.com/SiyiWei-st6/sfdrow/commit/d909aa4bcbe0e26c57fb98ddab8c8de3005424ae 
+轮播华数黑莓下载地址： https://github.com/SiyiWei-st6/sfdrow/commit/59a5509180e49b150ffdc184070f1aef6db3ca19 
+台湾香港澳门电视台直播源下载地址： https://github.com/SiyiWei-st6/sfdrow/commit/808e6004b7750a0695b057b7b0841684c252f68e 
+韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美、俄罗斯、中东等： https://github.com/SiyiWei-st6/sfdrow/commit/436b06a52b8f7c567c6fe5099836073c4c1113df 
+国外电视台直播源下载地址： https://github.com/SiyiWei-st6/sfdrow/commit/1caa8db0e949356e541669bf54e30da73c554644 
+卫视地方台安徽农大下载地址： https://github.com/ShihanZhou-ij9/nliqrh/commit/81e66faafee2302085ad11f378b81486e21ac5c5 
+卫视北京凤凰探索星空卫视北京邮电大学校园网下载地址： https://github.com/ShihanZhou-ij9/nliqrh/commit/e78082aecb8ea7ad9f97d557eca4d958a6aa37db 
+卫视上海源下载地址： https://github.com/ShihanZhou-ij9/nliqrh/commit/26052a40b5c11ab3ab1efdb717867135160de93d 
+卫视重庆广电 下载地址： https://github.com/flyousur/vnhykq/commit/ebb9030367fa8864eadf99035d008afac18a4bc4 
+卫视百视 TV 下载地址： https://github.com/YufeiDing-rs5/kfxbza/commit/99dbdc86cef24d9ea18bf14bc8c05fe3350dd488 
+移动 IPv6 直播源下载地址： https://github.com/ZhiyanPeng-mn0/jczddl/commit/13ccac65e12148ff73bbf5a015235ba444d6d268 
+国内电视台 IPv6 直播源下载地址： https://github.com/ZhiyanPeng-mn0/jczddl/commit/4a7d1fe50da3441ada1100f783e756bdb62bf9eb 
+各大卫视、上千个地方台： https://github.com/ZhiyanPeng-mn0/jczddl/commit/85c6d5590a6cdcd274ba17a70f66028553651d4d 
+国内电视台直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/6b7f4dbf0ad775577ffbc45c0ccfd7f26a3b1c05 
+全国可用直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/d3399767d85ac8d55d837b1b05e62221850d123b 
+包括完整内容所有已知频道： https://github.com/JunjieZhang-0is/fzjcrn/commit/fdb263430f0f9167f7a4acce247a663123fa78de 
+除成人内容以外的已知频道： https://github.com/ZixuanWu-efk/qeigra/commit/6de9b3c5387aa46bd092e57cfa3a1b9083eb0c8f 
+收集来自世界各地公开可用的 IPTV： https://github.com/YufeiDing-rs5/kfxbza/commit/ff9fc30b08f9304ad72caefaf6cbcd8628216ad3 
+稳定地址： https://github.com/flyousur/vnhykq/commit/6d138b2f37878af32a3f344d018c29da950f7520 
+2026-07-15 更新 CCTV 等世界杯相关 HD 播放源： https://github.com/ShihanZhou-ij9/nliqrh/commit/c348e88855917432b28ec036e1e798de34cc5315 
+2026-07-15 更新 IPTV 工具： https://github.com/HaoyangYuan-gh4/vwclwk/commit/1f3986c1568adb452078eb268cd1bfa1ad080c40 
+2026-07-15 更新世界各地 IPTV 频道： https://github.com/HaoyangYuan-gh4/vwclwk/commit/4c5177c04c9664775a19477eb1b71fc0a0b5461d 
+2026-07-15 更新全国可用直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/0582c513b9ca31cc8d3e6166c860e64307f04f19 
+新增各地运营商的 IPTV 地址： https://github.com/HaoyangYuan-gh4/vwclwk/commit/825d6a3ad1ca47024a32cc8df8144e3e23897c61 
+插件推荐： https://github.com/HaoyangYuan-gh4/vwclwk/commit/1f54a5b638fdfb02cf0476e432703894af345b40 
+视频教程增加： https://github.com/HaoyangYuan-gh4/vwclwk/commit/754e91afbad9bb40f81425d1ef78b3bcab6ffbc1 
+咪咕源失效： https://github.com/HaoyangYuan-gh4/vwclwk/commit/125e24c9a080ffda148ec4fa70f58a5a49191c7d 
+2026-07-15 更新各地运营商 IPTV 直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/96284ecc3e04117a2c0903affb67fe643a77eb35 
+2026-07-15 更新台湾香港海外直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/bf35e071a85774a58097e6559853e8c58deebac7 
+新增辽宁广电直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/83a48dba17b8778f1a6324ab7a842bed55d162e1 
+新增江西广电直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/68986893874fae4c1c9769685af786a447abad57 
+新增湖北广电直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/4190a88b0a2e73fe82173497c3a63add94a1fe33 
+新增中国广电 cctv + 卫视直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/2f958e23ac37aea86cc43004b2eccf83f7e9ee2e 
+新增辽宁电信 IPTV 直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/88c57ec51d967302b4989b7cb2bdc547546b237a 
+2026-07-15 更新台湾香港海外直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/dc5a9fc565a31577de7822aeca13313c9e1c77c5 
+新增辽宁移动直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/19d3018d26e5dec927450f04d9524ec251bced5a 
+新增浙江杭州华数 IPTV 直播源： https://github.com/HaoyangYuan-gh4/vwclwk/commit/e9ddc86976fe548d7089e1bb6e96413d7cacedc1 
+新增广东联通 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/c7bad72b51782efedafd0fe88423f34d9f7a3592 
+新增四川广电 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/acfab2069eaeed354b549ab9f61957b551fa0e35 
+新增云南电信 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/ad6891e4c49e466d848aa3b716effe3b5c5980a0 
+2026-07-15 更新国内电视台直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/069c772bdb5b0bb0625e3b3ee6ef42d5d9f4e783 
+新增福建电信 IPTV 直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/0ee62224032920e2957fa1d1d95ac9a1133cbda8 
+新增天途云 CCTV + 卫视： https://github.com/SiyuHu-ffa/gftpiz/commit/2fbb71d46eeece1c8a6f410efa59bd1af0971994 
+新增腾讯云 CCTV + 卫视： https://github.com/SiyuHu-ffa/gftpiz/commit/6f31f16ac52100dbf0de8f432cf97d0d45d9c163 
+新增 CCTV 付费频道直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/e1d84c1e69837ebb21ef2c1c199d8c230a4895f3 
+新增广播电台： https://github.com/SiyuHu-ffa/gftpiz/commit/f50ea42bf79ad68207b7d00c49c7dff581262f90 
+2026-07-15 更新 轮播爱奇艺 CIBN 华数 NewTV 虎牙战旗： https://github.com/SiyuHu-ffa/gftpiz/commit/e8eb540e2a9ac10e5ebda4ef6e8ba7fd7533ee3e 
+2026-07-15 更新 台湾香港海外直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/9629c117078588c77060c57e134921db57517063 
+2026-07-15 更新 国内电视台直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/16454d53842a304a0e6760a054f4cc371600d2d6 
+国家直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/f41a528ccb105c49badcc3aadd487b7bf5f1d14a 
+直播源： https://github.com/SiyuHu-ffa/gftpiz/commit/5b30dfff6d8eac613bf715524c247caadf0896e5 
+影视剧场： https://github.com/ZixuanWu-efk/qeigra/commit/b25bcdad15a27e0a318312bb40f0b6be266f7d19 
+台湾香港澳门： https://github.com/YimingYan-vw9/eoqett/commit/ff39655bea91bfe0d4f68ef9279fc8d1ca897817 
+国外电视台： https://github.com/YimingYan-vw9/eoqett/commit/bf76ff2edbfcab1a7f176ef5a638e82bbef25bac 
+国内电视台： https://github.com/YimingYan-vw9/eoqett/commit/5839395a99a08ea70843b389c74c06747d203f27 
+更早期 2026-07-15 更新： https://github.com/YimingYan-vw9/eoqett/commit/8091bd5171872460fbb06870c5a77d2a50ea0f81 
+各地运营商 IPTV 直播源： https://github.com/YimingYan-vw9/eoqett/commit/4c2f1258e8faa38dcb64d159f32c3a930b50590a 
+全国可用直播源： https://github.com/YimingYan-vw9/eoqett/commit/dca5693b48815ddd2008e68da092bd192c9c451a 
+2026-07-15 更新： https://github.com/YimingYan-vw9/eoqett/commit/1419fe8afafc50616f91ec6290ba36aad0b3cf17 
+赞助者： https://github.com/YimingYan-vw9/eoqett/commit/df3dd6b9f33357eeb0e859e3944fdd1bd1ba7554 
+文章： https://github.com/YimingYan-vw9/eoqett/commit/84ad5a4b9bd9d3e2bb5f946c436a9ee60cbee5c1 
+视频教程： https://github.com/YimingYan-vw9/eoqett/commit/be683edbaea54c241831e7675c6d8208bfa45c86 
+插件： https://github.com/YimingYan-vw9/eoqett/commit/3989e2b70b9e123a0500c36aff9df8705bb92a4d 
+工具： https://github.com/YimingYan-vw9/eoqett/commit/3d469c5c336aa19ecde9a2271647d6d25b52af1c 
+URL： https://github.com/YimingYan-vw9/eoqett/commit/db491334dc57ff1ea7db36185d05d4887ebb5c49 
+目录： https://github.com/YimingYan-vw9/eoqett/commit/c473fa0f5b67773a2e9d47ae46508f8deca8bfc0 
+喀麦隆直播电视频道： https://github.com/YimingYan-vw9/eoqett/commit/27c7ad99e95db915981593b1a95c7cf1ad22d6ec 
+阿富汗直播电视频道： https://github.com/YimingYan-vw9/eoqett/commit/d0f7d655151465c6a2fd20b4b07b4c5815d010e7 
+海地的直播频道： https://github.com/YufeiDing-rs5/kfxbza/commit/915df959d310511969a8f67df7abab949769b165 
+高棉直播和泰国电视，电影和电视剧： https://github.com/YufeiDing-rs5/kfxbza/commit/65eceee3afecd2f9f680f6f8b4ea1c8a908808ef 
+厄瓜多尔直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/80d0882cc5d559fb687d1b0578cd8a3830482990 
+玻利维亚直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/4d78514b0df6384d04450c168c585892c4527f7a 
+萨尔瓦多直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/46a03137726f9cc48f268a5c4630077300383f95 
+危地马拉直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/df8e0207108cc6d161f84cf0e1e3ffd1885956c6 
+洪都拉斯直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/2541f3e88180c6624b0a0a59d78fd75b1cf0df85 
+多米尼加共和国直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/1f4ff485461a202ed1935b822e7a0e8502f27b57 
+哥斯达黎加直播频道： https://github.com/ZiqiYe-uv8/pohufs/commit/f05ad2a497cec5cd6ec5754b4874a47a8dceb44a 
+来自世界各地的个电视频道和个摄像机： https://github.com/ZiqiYe-uv8/pohufs/commit/2a1eee483ccf6350c7ef109d4348840a40c134c7 
+免费数据库： https://github.com/ZiqiYe-uv8/pohufs/commit/92f25e8881701734299e226bd4265d9b27ea510d 
+公共链接到互联网上传输的个线性电视频道和个线性无线电频道： https://github.com/ZiqiYe-uv8/pohufs/commit/ea0951ad08c69e1fcf89ca0f6e731784650945b3 
+超过个国家地区的个高清频道和： https://github.com/ZiqiYe-uv8/pohufs/commit/2d02b82096b55ff319c2d04aa59d241ba50bce0a 
+超过个直播电视频道影视节目： https://github.com/ZiqiYe-uv8/pohufs/commit/e5665a4bbc9ab5328ca71ea26ebce7b559704563 
+提供商列表： https://github.com/ZiqiYe-uv8/pohufs/commit/32a4389f0c7008f95b3c33f24d9a2dceb85f07bc 
+提供者： https://github.com/ZiqiYe-uv8/pohufs/commit/f38df0f2373c75345a811d6a4eb6cce7a5533949 
+客户端服务器媒体播放器： https://github.com/ZiqiYe-uv8/pohufs/commit/b06a600b927502acb64d6e0b906910c7862d4912 
+支持播放列表文件： https://github.com/ZiqiYe-uv8/pohufs/commit/c41d76beadab8750719f42d725fc033c9779733c 
+启用投屏的应用程序，可让您将收藏的视频从移动设备流式传输到电视： https://github.com/SiyiWei-st6/sfdrow/commit/eee11f2016c92a0d38aa1de30d066c37d2b954ac 
+完整的用户定义的高级 IPTV 解决方案，用于实时和非实时电视流： https://github.com/SiyiWei-st6/sfdrow/commit/ffc6082094a93cff41a3ea8897f79101c111049f 
+点 即可： https://github.com/SiyiWei-st6/sfdrow/commit/b98864198642a54bf907745fb7f60668ba43d9a9 
+第三行不用管： https://github.com/SiyiWei-st6/sfdrow/commit/a732d134e8a021f85a872f1108d4ecb2db0330dc 
+第二行输入上面给你的地址： https://github.com/SiyiWei-st6/sfdrow/commit/eb9d516051c5dc5c37b81cef3c25634adcb8a165 
+第一行随意输入一个名字： https://github.com/SiyiWei-st6/sfdrow/commit/ee2a85ba13a1646cddead938c29598c69f4bd94f 
+选择 远程播放列表文件： https://github.com/SiyiWei-st6/sfdrow/commit/69c20910bf947d15059508bb8728676c8f019818 
+打开 点击 号： https://github.com/SiyiWei-st6/sfdrow/commit/aeb2b398d847d6f612ae1f0d4d1c4c0a9dacaa2f 
+食用指南： https://github.com/SiyiWei-st6/sfdrow/commit/0b95c37ddb02c71267b01293fe12acc24eed4626 
+适用于 macOS 的现代媒体播放器： https://github.com/SiyiWei-st6/sfdrow/commit/85f4d531ecc279cc6ccd6355c35c3b7fb977f610 
+直播电视和广播客户端插件： https://github.com/SiyiWei-st6/sfdrow/commit/8957fcaaaf92546c2c32630595f1e430161c45eb 
+具有库支持的免费跨平台媒体播放器： https://github.com/SiyiWei-st6/sfdrow/commit/b1ec736cf0f5156d749e7270a92a0a8d9b8bd776 
+免费开放源代码的便携式跨平台媒体播放器： https://github.com/SiyiWei-st6/sfdrow/commit/aaf218f33f7ea086bcfe7a4c1cce2fb041403c92 
+支持 IPTV 流的应用程序： https://github.com/SiyiWei-st6/sfdrow/commit/3c6d77adf2090f1b857a68e23b44fb44234b9da9 
+工具： https://github.com/SiyiWei-st6/sfdrow/commit/1a802d5a35894dcb7f2d9badb7d992998a8c27ed 
+轮播华数求索爱奇艺 2026-07-15 更新： https://github.com/ShihanZhou-ij9/nliqrh/commit/1d3327bfa2608dbe1a4ccd19ed681b837cb86d4e 
+台湾、香港、澳门、韩国、日本、美国、加拿大、英国、意大利、德国、法国、西班牙、南美等国： https://github.com/ShihanZhou-ij9/nliqrh/commit/577cbc6751b9ee77c6835bc2a5536f219f283e76 
+台湾香港海外直播源 2026-07-15 更新： https://github.com/ShihanZhou-ij9/nliqrh/commit/8b3132c60b7829abc393a6d323b23c86be574546 
+各大卫视、上千个地方台： https://github.com/ShihanZhou-ij9/nliqrh/commit/299e5441252941a242acd62b00ba96fb64d16b9c 
+国内电视台直播源 2026-07-15 更新： https://github.com/ShihanZhou-ij9/nliqrh/commit/80cfa90acffa65c4a3e7c5c6f44e2390b9ff37ad 
+卫视腾讯云： https://github.com/flyousur/vnhykq/commit/80138a1fb6473588ba0f6f18807cbceac83c3f08 
+卫视平顶山学院教育网： https://github.com/flyousur/vnhykq/commit/d56b5ab310e6575607c8e9d194988b9a5f2b02b7 
+卫视天途云： https://github.com/flyousur/vnhykq/commit/086a0e2da5cfd02b7a72e5e5e4618877a1d4f4d5 
+卫视地方台安徽农大： https://github.com/flyousur/vnhykq/commit/24cee2b502de3ad5e5df60700b2ce979b89baf55 
+卫视北京凤凰探索星空卫视北京邮电大学校园网： https://github.com/YufeiDing-rs5/kfxbza/commit/a43f491dc967bf66df1b21ed17cde1ef818c03dd 
+央视卫视广西移动直播源： https://github.com/ZhiyanPeng-mn0/jczddl/commit/b937d1faa59cc232288d656276efafb00761b9a2 
+付费频道直播源： https://github.com/ZhiyanPeng-mn0/jczddl/commit/a466ad425a586fc7293ecb9ca30efbd870a1c41b 
+国家直播源多个全部有效： https://github.com/ZhiyanPeng-mn0/jczddl/commit/f54dd9105bde3fc623393b5c6f1551f4a1d5f757 
+直播源全部有效： https://github.com/ZhiyanPeng-mn0/jczddl/commit/f4a5022aff3bb9c81c00defb17abf3aec769a376 
+全部有效： https://github.com/ZhiyanPeng-mn0/jczddl/commit/6ade31068df0fa4a7ae9633e8223d81770243c8a 
+直播源全部有效老电脑别用： https://github.com/ZhiyanPeng-mn0/jczddl/commit/c8606c5f009d848919229ace6d652d076b19f3db 
+影视剧场全部流畅： https://github.com/ZhiyanPeng-mn0/jczddl/commit/64d182b57f8bc9fd124f5a5c9fe40528ac6ee997 
+全部可用： https://github.com/YufeiDing-rs5/ojnetx/commit/dc16c95a94e9a7f6ee9648ef32e50b324d92be0b 
+我的播放源： https://github.com/SiyuHu-ffa/gftpiz/commit/cc69a5ad21356aa66ebafb03ec97eea387554a48 
+其他直播源 不确定有效性： https://github.com/SiyuHu-ffa/gftpiz/commit/b127e77163ffcd5bef29bc24e632ddad1a40a5a9 
+新疆电信组播 IPTV 直播源下载地址： https://github.com/SiyuHu-ffa/gftpiz/commit/6a43c874effcb807862f2244a1106116734d681e 
+新疆 IPTV 直播源： https://github.com/JunjieZhang-0is/fzjcrn/commit/3dc2fe182d86ccc690656583769740530d26afc4 
+内蒙古联通 udp 组播下载地址： https://github.com/JunjieZhang-0is/fzjcrn/commit/03b2932c54451d7b11c436864450fd86daf24f4d 
+内蒙古联通 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/d3944bc499b3381ea8194b8b924dcd78ccb9b9da 
+内蒙古电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/f3421293941b9e8a714f4640585eaccc790445de 
+内蒙古电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/5c982da50acf1888f9e9d70b2ece1398221ca691 
+内蒙古 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/defb68f8016d1665dee82b43a82357022d1ec1fd 
+黑龙江联通组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/2fb6f837f17848e186cc13b6b1d8ca12901cf17b 
+黑龙江移动 3IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/e2c9d415a04d472b5205238dbee5cc4328fa5b92 
+黑龙江移动 2IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/f37ed9b159c86a423cad7fd975ed0535cb8bee16 
+黑龙江移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/7b2e8080793f1228df114ebba24d002011ed0427 
+黑龙江 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/383b196de0fd377a54681ed8a8b1b0d7c29783ba 
+吉林电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/eeb7b3a93ac37d1e1fa5e9da18db92d31d9d1b64 
+吉林 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/9ad79cf6202ba7e70833cb2824ae10432aaa9c48 
+辽宁移动直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/010f0bc8865cc06dcb5d62f17b1fed1589b22b34 
+辽宁电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/07006dfcb819eb473083a928425f6505eb0c5fae 
+辽宁大连联通 IPTV 组播直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/ae8849a78672061e17b20de24883273f6fb915fc 
+辽宁联通组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/f954583783ac042410e3f50f1c0c996a65c7c0b0 
+辽宁联通 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/d2544bcb6140dd59c960e96eba12b9fbc2a220d0 
+辽宁 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/927546aafc8e9288daf1066913a96f37df162d77 
+浙江电信组播 IPTV 组播直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/0d7d1ef7ecf467d715e53bc3c4ac187eb55cb24c 
+浙江电信 IPTV 组播直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/3e173ee86c057fa73fd2a3a83f9246c80071ae7c 
+浙江联通 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/181e564b8520638b76fb120c35d59a7b6b10aff3 
+浙江移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/f8f7c03820f2552b1f6e9aa70b8d201180ab378d 
+浙江 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/8f51bd798099cc0e533d4e9831e400259617fbfc 
+江西联通 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/748625bfc02b56bb373064f216d84f88f2a5b47a 
+江西电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/f0325979b165c68d5614f20eb3c23bdcdce67831 
+江西电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/46440e50e83cbda7a590a8796d84e75c806e7d82 
+江西移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/9d90710c93d609a782bd376c3d00d8677009a636 
+江西 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/7cfb32883789d94cb51361e3cc151316b64ffeef 
+江苏移动 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/8b32138b79235ec0beb7a2cc6371fd3f62867ed4 
+江苏电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/9c9f11636b7f36177598521bdaea84e49ab319b0 
+江苏泰州电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/6fcebb892dc64003c6b89740c31a05f891262aa4 
+江苏南京电信 2IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/5b93a5fe8018a78696634af3fea5a61cefaccf0b 
+江苏南京电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/286d592e107106fe1914e53ecd35faaff001f555 
+江苏电信 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/49c68a8cca4654dd70d27744990bafec3e8bc1f6 
+江苏 IPTV 直播源： https://github.com/ZiqiYe-uv8/pohufs/commit/768ffd6d8ad6e5286c3308dbb371099ee15cb7f0 
+安徽广电 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/4498144d8debeb19e2cd4f1a6871ef0f7fd5f170 
+海南电信组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/e70de1d7b0dde32cd02ad85d29ae0991d6b6c74b 
+海南联通组播 IPTV 直播源下载地址： https://github.com/ZiqiYe-uv8/pohufs/commit/ef0b9bd35e31fdb3e89518ab7cafb78ca66092f9 
+提供所有优质的英国，爱尔兰，德国，土耳其，阿拉伯语，美国和加拿大频道
+超过个俄罗斯频道和天的节目存档
+起初这里仅收录美加墨世界杯直播地址，配合赛程比分对阵供调用
+后来疫情来了，这里又增加了世界各国公共频道，及国内部分区域 IPTV，希望带给隔离中的些许心理依托
+然后转眼三年了，还这样子，且没有转好的迹象 相信这段浓墨重彩的一笔世人铭记
+眼下 美加墨世界杯
+再次祝愿所有人百毒不侵 希望动态清零早日过去，请大家务必坚信明天是崭新的
+这个项目的存在要感谢所有贡献者
+请给我们一个 点赞支持我们 谢谢
+并感谢所有支持者2026年07月23日23时27分27秒
+来源：https://github.com/ZiqiYe-uv8/pohufs/commit/729c78e84e81bd99bfa5046b85b85c77e27a283c 
+来源：https://github.com/ZiqiYe-uv8/pohufs/commit/7fe81338132a6aa2763e32416ba96102e13c4981 
+来源：https://github.com/ZiqiYe-uv8/pohufs/commit/19227e6e4d0d241782084dd313c785bcc8f0aade 
+来源：wefhsdhcvWESDCSDwefsdf.cn
+2026年07月23日，23时27分27秒
+sdff0723-06
